@@ -1,1 +1,1 @@
-# RAM open inovation "Landing page"
+# RAM open innovation "Landing page"
